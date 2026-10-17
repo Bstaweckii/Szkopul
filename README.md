@@ -1,0 +1,2 @@
+# Szkopul
+PPK - Wyklady
